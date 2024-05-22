@@ -9,3 +9,4 @@ I don't need to be looking at this. And where's my head?
 Is this some sort of retarded hooliganist joke?
 
 I don't think I find it funny!
+❤️ 🧡 💛 💚 💙 💜 🩷
